@@ -1,2 +1,2 @@
 # ali
-1mofk[prlfofkrplf,odjvc[dfkpirjfrfj[olf,wwe,nfirfu-w=of
+1mofk[prlfofkrplf,odjvc[dfkpirjfrfj[olf,wwe,nfirfu-w=of$
